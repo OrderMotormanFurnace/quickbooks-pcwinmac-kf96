@@ -1,4 +1,4 @@
-# 
+# Seguro QuickBooks plugins para Mac OS | Código aberto QuickBooks plugins para PC Windows. Com categorização de despesas e localizador de deduções — otimizado para máximo desempenho em cada plataforma.
 
 
 
